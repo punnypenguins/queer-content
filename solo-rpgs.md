@@ -15,3 +15,12 @@
 [Ghosts of the Quiet Places](https://possumcreekgames.itch.io/ghosts-of-the-quiet-places)
 
 > This game is a short meditation on queer fatalism and forms of queer existence that aren't included under the boisterous celebration of Pride. It was written for #PrideJam2019. 
+
+[Pseudomonarchia Daemonum](https://silverygrey.itch.io/pseudomonarchia-daemonum)
+
+> A solo journalling game about tying yourself to increasingly restrictive categories as a form of self defense against HEAVEN, made for the TRANS FUCKING RAGE JAM. 
+
+[Wasmanian](https://pennharper.itch.io/wasmannian)
+
+> Wasmannian is a solo-role playing game that uses both a deck of journaling prompts and self-scoring to help create a story unique to each player that explores feelings of otherness within opposing, binary worlds.
+
